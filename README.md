@@ -1,1 +1,1 @@
-# AI_INTERPLAY_Agentic-Workflow_emergent-organism-networks
+# OPEN EMERGENT
